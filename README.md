@@ -11,4 +11,4 @@
    
 5. Enfrentei um cartel mexicano utilizando armadilhas e táticas de guerrilha para resgatar minha querida sobrinha adotiva.
 
-Em resumo: Don’t Push It, Or I’ll Give You A War You Won’t Believe!
+Em resumo: Não me provoque, ou eu vou te dar uma guerra que você não vai acreditar!
